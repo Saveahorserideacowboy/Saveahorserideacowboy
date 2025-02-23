@@ -9,3 +9,9 @@ welcome message here or wtvr
 <p align="center">
   <img width="270" height="70" src="https://64.media.tumblr.com/d5b486e10b335fa2a89a82e0ea8544f7/59109a23f82e5c42-cb/s400x600/538d2e954ee1ce83b99a933deb295ea3b40f0ebd.gifv">
 </p>
+
+<p align="center">
+✧.* Info
+<p align="center">
+𝐕𝐀𝐌𝐏 ✩‧₊˚ 𝙷𝚎/𝙷𝚒𝚖/𝙷𝚒𝚜 ✩‧₊˚ 𝟷𝟺
+
