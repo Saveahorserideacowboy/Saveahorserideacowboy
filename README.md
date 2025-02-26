@@ -20,7 +20,7 @@ welcome message here or wtvr
 <p align="center">
 ✧.* Info
 <p align="center">
-𝐕𝐀𝐌𝐏 ✩‧₊˚ 𝙷𝚎/𝙷𝚒𝚖/𝙷𝚒𝚜 ✩‧₊˚ 𝟷𝟺
+CHANCE ✩‧₊˚ 𝙷𝚎/𝙷𝚒𝚖/𝙷𝚒𝚜 ✩‧₊˚ 27
 
 ![image](https://media.discordapp.net/attachments/1287942798242222182/1343289713997643826/tumblr_bbf7b440da547fe2f2223728245555e4_3acc8e05_100.webp?ex=67bcbb88&is=67bb6a08&hm=c5474ab77db3a4e02bfed8db4e537fb7c887c4cc67761a5be2289f99822d5977&=&animated=true&width=122&height=70)
 ![image](https://media.discordapp.net/attachments/1287942798242222182/1343289713477554327/tumblr_903abb3a847659faf601518b2c9e3a61_6f3fbff4_100.webp?ex=67bcbb88&is=67bb6a08&hm=56327462bc637faacd5bf15a78f69df7cb21fbb6fab19ba3743a12f76b4c80cf&=&format=webp&width=118&height=67)
